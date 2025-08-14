@@ -12,7 +12,7 @@
 ![软件截图1.png](软件主图.png)
 
 # 软件下载链接
-TG聊天群：https://t.me/changfengbox
+TG聊天群：
 
 百度网盘：https://ylb.ymf6.com/9H5v
 
